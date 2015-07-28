@@ -1,2 +1,2 @@
 # teddyljh.github.io
-Teddy's retarded page
+Teddy's dudulu page
